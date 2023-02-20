@@ -1,3 +1,3 @@
-# 我的学术主页
+# 我的主页
 
 **My howepage:** http://lyiokue.com/
